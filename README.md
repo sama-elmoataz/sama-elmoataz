@@ -40,5 +40,5 @@ Tools
 	•	LinkedIn: https://www.linkedin.com/in/sama-elmoataz-999447366/
 	•	Email: sama.elmo3taz@gmail.com
 
-⭐ “Turning ideas into intelligent solutions, one project at a time.## Hi there 👋"
+⭐ “Turning ideas into intelligent solutions, one project at a time."
 
